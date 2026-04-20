@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> حبيبي حياتي ونور العيون
+> بحبك قلبي تحدى الظنون
+> تعالي إلي وضمي الفؤاد
+> معاك أعيش أحلى جنون
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
